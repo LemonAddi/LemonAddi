@@ -1,4 +1,4 @@
-# ✩₊˚.⋆☾⋆⁺₊✧ Hello, I'm Lemon! ✩₊˚.⋆☾⋆⁺₊✧
+# ✩₊˚.⋆☾⋆⁺₊✧ Hello, My name is Lemon! ✩₊˚.⋆☾⋆⁺₊✧
 
 ##
 
