@@ -16,6 +16,8 @@
 
 - ✩₊˚.⋆☾⋆⁺₊✧ I am Autistic, have ADHD, Alexithymia and ARFID (All Diagnosed) and am like 99% sure I have Anxiety because there's so many signs but that one isn't diagnosed lmao. ✩₊˚.⋆☾⋆⁺₊✧
 
+- ✩₊˚.⋆☾⋆⁺₊✧ I am Aromantic (Specifically ficto/cupio), DemiBisexual, Agender and use Neopronouns. ✩₊˚.⋆☾⋆⁺₊✧
+
 - ✩₊˚.⋆☾⋆⁺₊✧ For those who don't know what Alexithymia is (Since I've been asked a lot), Alexithymia, also known as emotional blindness, is a psychological condition characterized by difficulties in recognizing, understanding, and expressing emotions. It's co-morbid with Autism and basically, sometimes I might not 'feel' a certain way but my body may react as if I am. It doesnt mean I don't care though, because while I may not always cry when 'appropriate' for example, I can find something sad. I just have difficulties truly expressing the way I feel. <3 ✩₊˚.⋆☾⋆⁺₊✧
 <!--
 
