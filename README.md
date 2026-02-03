@@ -1,4 +1,4 @@
-# Hi, I'm Lemon! 👋
+# Hi, I'm Lemon! 
 
 ## 
 
