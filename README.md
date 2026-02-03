@@ -1,8 +1,9 @@
-# Hi, I'm Lemon! 
+# Hello, I'm Lemon! ✩₊˚.⋆☾⋆⁺₊✧
 
-## 
+##
 
-- 
+- ✩₊˚.⋆☾⋆⁺₊✧ I'm an artist who is currently really into Sonic the Hedgehog but I'm always willing to talk about my other interests like Doctor Who, FNAF, Undertale and more! ✩₊˚.⋆☾⋆⁺₊✧
+- ✩₊˚.⋆☾⋆⁺₊✧ My Discord is LemonAddi but I would prefer you ask first before sending me requests. My minimum requirement is literally just talking for a bit lmao. ✩₊˚.⋆☾⋆⁺₊✧
 <!--
 
 Here are some ideas to get you started:
