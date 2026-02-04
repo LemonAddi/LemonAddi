@@ -21,11 +21,7 @@
 - ✩₊˚.⋆☾⋆⁺₊✧ For those who don't know what Alexithymia is (Since I've been asked a lot), Alexithymia, also known as emotional blindness, is a psychological condition characterized by difficulties in recognizing, understanding, and expressing emotions. It's co-morbid with Autism and basically, sometimes I might not 'feel' a certain way but my body may react as if I am. It doesnt mean I don't care though, because while I may not always cry when 'appropriate' for example, I can find something sad. I just have difficulties truly expressing the way I feel. <3 ✩₊˚.⋆☾⋆⁺₊✧
 
 
-<p align="center">
-<img src= ![ezgif-5df5a7c4208fe586](https://github.com/user-attachments/assets/e1a7f4b6-7f60-44cd-ba37-ab2d3af1df41)![ezgif-59a3dadf6021c3e4](https://github.com/user-attachments/assets/d005527b-e5d8-4c09-b4b1-be437918ce2d)![ezgif-50e0b486a6b57477](https://github.com/user-attachments/assets/164535d2-c82f-45cd-9b1a-40c7dc82db82)>
-</p>
-
-
+![ezgif-5df5a7c4208fe586](https://github.com/user-attachments/assets/e1a7f4b6-7f60-44cd-ba37-ab2d3af1df41)![ezgif-59a3dadf6021c3e4](https://github.com/user-attachments/assets/d005527b-e5d8-4c09-b4b1-be437918ce2d)![ezgif-50e0b486a6b57477](https://github.com/user-attachments/assets/164535d2-c82f-45cd-9b1a-40c7dc82db82)
 
 <!--
 
