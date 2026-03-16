@@ -20,9 +20,6 @@
 
 - ♡⸝⸝ For those who don't know what Alexithymia is (Since I've been asked a lot), Alexithymia, also known as emotional blindness, is a psychological condition characterized by difficulties in recognizing, understanding, and expressing emotions.ᐟ.ᐟ
 
-
-![ezgif-5df5a7c4208fe586](https://github.com/user-attachments/assets/e1a7f4b6-7f60-44cd-ba37-ab2d3af1df41) ![ezgif-50e0b486a6b57477](https://github.com/user-attachments/assets/164535d2-c82f-45cd-9b1a-40c7dc82db82)
-
 <!--
 
 Here are some ideas to get you started:
