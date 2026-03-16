@@ -1,4 +1,4 @@
-# ✩₊˚.⋆☾⋆⁺₊✧ Hello, My name is 𑣲𝐿emon! ꫂ᭪ જ⁀➴ ♡
+# ⤷ ゛ Hello, My name is 𑣲𝐿emon! ꫂ᭪ જ⁀➴ ♡ ˎˊ˗
 
 #
 
