@@ -1,24 +1,24 @@
-# ✩₊˚.⋆☾⋆⁺₊✧ Hello, My name is Lemon! ✩₊˚.⋆☾⋆⁺₊✧
+# ✩₊˚.⋆☾⋆⁺₊✧ Hello, My name is 𑣲𝐿emon! ꫂ᭪ જ⁀➴ ♡
 
 #
 
-- ✩₊˚.⋆☾⋆⁺₊✧ I'm an artist who is currently really into Sonic the Hedgehog but I'm always willing to talk about my other interests like Doctor Who, FNAF, Undertale and more! ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ I'm an artist who is currently really into Sonic the Hedgehog but I'm always willing to talk about my other interests like Doctor Who, FNAF, Undertale and more.ᐟ.ᐟ
 
-- ✩₊˚.⋆☾⋆⁺₊✧ When I do post, my art will likely only be posted on Bluesky. I don't post on most other sites anymore, just use them to look at other people's art. ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ When I do post, my art will likely only be posted on Bluesky. I don't post on most other sites anymore, just use them to look at other people's art.ᐟ.ᐟ
 
-- ✩₊˚.⋆☾⋆⁺₊✧ My Discord is LemonAddi but I would prefer you ask first before sending me requests. ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ My Discord is LemonAddi but I would prefer you ask first before sending me requests.ᐟ.ᐟ
 
-- ✩₊˚.⋆☾⋆⁺₊✧ My favourite Sonic character is Shadow the Hedgehog! ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ My favourite Sonic character is Shadow the Hedgehog.ᐟ.ᐟ
 
-- ✩₊˚.⋆☾⋆⁺₊✧ I am a selfshipper/yumeshipper. If that bothers you, you're free to not interact. I'm chill with everyone, even people who ship with my F/Os! ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ I am a selfshipper/yumeshipper. If that bothers you, you're free to not interact. I'm chill with everyone, even people who ship with my F/Os.ᐟ.ᐟ
 
-- ✩₊˚.⋆☾⋆⁺₊✧ Main F/Os currently are Sonic and Shadow, on Ponytown/Bluesky you may see me sat as/post my Sona Ink. If I ever mention 'Sonadink' and you're wondering what I mean, it's just 'Sonadow' + 'Ink'. <3 ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ Main F/Os currently are Sonic and Shadow, on Ponytown/Bluesky you may see me sat as/post my Sona Ink. If I ever mention 'Sonadink' and you're wondering what I mean, it's just 'Sonadow' + 'Ink'.ᐟ.ᐟ
 
-- ✩₊˚.⋆☾⋆⁺₊✧ I am Autistic, have ADHD, Alexithymia and ARFID (All Diagnosed) and am like 99% sure I have Anxiety but that one isn't diagnosed lmao. ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ I am Autistic, have ADHD, Alexithymia and ARFID (All Diagnosed) and am like 99% sure I have Anxiety but that one isn't diagnosed lmao.ᐟ.ᐟ
 
-- ✩₊˚.⋆☾⋆⁺₊✧ I am Aromantic (Specifically ficto/cupio), DemiBisexual, Agender and use Neopronouns. ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ I am Aromantic (Specifically ficto/cupio), DemiBisexual, Agender and use Neopronouns.ᐟ.ᐟ
 
-- ✩₊˚.⋆☾⋆⁺₊✧ For those who don't know what Alexithymia is (Since I've been asked a lot), Alexithymia, also known as emotional blindness, is a psychological condition characterized by difficulties in recognizing, understanding, and expressing emotions. <3 ✩₊˚.⋆☾⋆⁺₊✧
+- ♡⸝⸝ For those who don't know what Alexithymia is (Since I've been asked a lot), Alexithymia, also known as emotional blindness, is a psychological condition characterized by difficulties in recognizing, understanding, and expressing emotions.ᐟ.ᐟ
 
 
 ![ezgif-5df5a7c4208fe586](https://github.com/user-attachments/assets/e1a7f4b6-7f60-44cd-ba37-ab2d3af1df41) ![ezgif-50e0b486a6b57477](https://github.com/user-attachments/assets/164535d2-c82f-45cd-9b1a-40c7dc82db82)
