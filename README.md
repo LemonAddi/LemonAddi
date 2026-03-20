@@ -12,8 +12,6 @@
 
 - ♡⸝⸝ I am a selfshipper/yumeshipper. If that bothers you, you're free to not interact. I'm chill with everyone, even people who ship with my F/Os.ᐟ.ᐟ
 
-- ♡⸝⸝ Main F/Os currently are Sonic and Shadow, on Ponytown/Bluesky you may see me sat as/post my Sona Ink. If I ever mention 'Sonadink' and you're wondering what I mean, it's just 'Sonadow' + 'Ink'.ᐟ.ᐟ
-
 - ♡⸝⸝ I am Autistic, have ADHD, Alexithymia and ARFID (All Diagnosed) and am like 99% sure I have Anxiety but that one isn't diagnosed lmao.ᐟ.ᐟ
 
 - ♡⸝⸝ I am Aromantic (Specifically ficto/cupio), DemiBisexual, Agender and use Neopronouns.ᐟ.ᐟ
