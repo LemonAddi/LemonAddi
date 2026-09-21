@@ -10,13 +10,9 @@
 
 - ♡⸝⸝ My favourite Sonic character is Shadow the Hedgehog.ᐟ.ᐟ
 
-- ♡⸝⸝ I am a selfshipper/yumeshipper. If that bothers you, you're free to not interact. I'm chill with everyone, even people who ship with my F/Os.ᐟ.ᐟ
-
 - ♡⸝⸝ I am Autistic, have ADHD, Alexithymia and ARFID (All Diagnosed) and am like 99% sure I have Anxiety but that one isn't diagnosed lmao.ᐟ.ᐟ
 
 - ♡⸝⸝ I am Aromantic (Specifically ficto/cupio), DemiBisexual, Agender and use Neopronouns.ᐟ.ᐟ
-
-- ♡⸝⸝ For those who don't know what Alexithymia is (Since I've been asked a lot), Alexithymia, also known as emotional blindness, is a psychological condition characterized by difficulties in recognizing, understanding, and expressing emotions.ᐟ.ᐟ
 
 <!--
 
