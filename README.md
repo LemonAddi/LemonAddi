@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://i.postimg.cc/HxTy4s12/tumblr-383c647865f6970b3b4ff0f8fd154b8a-de72f733-540.png" alt="Centered image">
+  <img height="500" width="84" src="https://i.postimg.cc/HxTy4s12/tumblr-383c647865f6970b3b4ff0f8fd154b8a-de72f733-540.png" alt="Centered image">
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/jSQq66x4/tumblr-6a84fd846ea89a0a6c0d1a1a36202768-989f9332-540.png" alt="Centered image">
+  <img height="200" width="200" alt="image" src="https://i.postimg.cc/jSQq66x4/tumblr-6a84fd846ea89a0a6c0d1a1a36202768-989f9332-540.png" alt="Centered image">
 </p>
 
 
