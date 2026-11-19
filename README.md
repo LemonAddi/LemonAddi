@@ -8,10 +8,10 @@
 
 <p align="centre"> ⤷ ゛𑣲𝐿emon ꫂ᭪ જ⁀➴ ♡ ˎˊ˗ </p> 
 <p align="centre"> ☆.。.:・°☆.。.:・°☆.。.:・°☆.。.:・°☆ </p> 
-<p align="centre"> ♡⸝⸝ They/Them + Neoprns .ᐟ.ᐟ </p> 
-<p align="centre"> ♡⸝⸝ DNC // W2I // Often off tab .ᐟ.ᐟ </p> 
-<p align="centre"> ♡⸝⸝ ASD // ADHD // ARFID // Alexithymia // Anxiety .ᐟ.ᐟ </p> 
-<p align="centre"> ♡⸝⸝ Aromantic (Ficto/Cupio) // Demi-Bisexual // Agender .ᐟ.ᐟ </p> 
+<p align="centre"> ♡⸝⸝ Tнєγ/Tнєм + Nєσρгηs .ᐟ.ᐟ </p> 
+<p align="centre"> ♡⸝⸝ ÐNC // W2I // Øƒтєη σƒƒ тαв .ᐟ.ᐟ </p> 
+<p align="centre"> ♡⸝⸝ ASÐ // AÐНÐ // AяŦIÐ // Aιєxıтнγмıα // Aηxıєтγ .ᐟ.ᐟ </p> 
+<p align="centre"> ♡⸝⸝ Aгσмαηтı¢ 【Ŧı¢тσ/Cυρıσ】 // Ðємı-βısєxυαι // Agєηdєг .ᐟ.ᐟ </p> 
 
 <p align="center">
   <img src="https://64.media.tumblr.com/f7ba9505bcced47fff0c02893326e9fb/88e2fe4333571a6d-78/s540x810/88f753e2d19b0b4fc64469e5cbe693730f5f2711.pnj" alt="Centered image">
