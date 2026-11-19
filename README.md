@@ -8,6 +8,7 @@
 
 <p align="center"> ⤷ ゛𑣲𝐿emon ꫂ᭪ જ⁀➴ ♡ ˎˊ˗ </p> 
 <p align="center"> ☆.。.:・°☆.。.:・°☆.。.:・°☆.。.:・°☆ </p> 
+<p align="center"> ♡⸝⸝ 22 // Wєιsн .ᐟ.ᐟ </p> 
 <p align="center"> ♡⸝⸝ Tнєγ/Tнєм + Nєσρгηs .ᐟ.ᐟ </p> 
 <p align="center"> ♡⸝⸝ ÐNC // W2I // Øƒтєη σƒƒ тαв .ᐟ.ᐟ </p> 
 <p align="center"> ♡⸝⸝ ASÐ // AÐНÐ // AяŦIÐ // Aιєxıтнγмıα // Aηxıєтγ .ᐟ.ᐟ </p> 
