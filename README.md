@@ -3,8 +3,9 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/2SFjddkJ/tumblr-f7ba9505bcced47fff0c02893326e9fb-88f753e2-540.jpg" alt="Centered image">
+  <img src="https://i.postimg.cc/jSQq66x4/tumblr-6a84fd846ea89a0a6c0d1a1a36202768-989f9332-540.png" alt="Centered image">
 </p>
+
 
 # <p align="center">⤷ ゛ Hello, My name is 𑣲𝐿emon! ꫂ᭪ જ⁀➴ ♡ ˎˊ˗</p>
 
@@ -23,7 +24,7 @@
 - ♡⸝⸝ I am Aromantic (Specifically ficto/cupio), DemiBisexual, Agender and use Neopronouns.ᐟ.ᐟ
 
 <p align="center">
-  <img src="https://i.postimg.cc/jSQq66x4/tumblr-6a84fd846ea89a0a6c0d1a1a36202768-989f9332-540.png" alt="Centered image">
+  <img src="https://i.postimg.cc/2SFjddkJ/tumblr-f7ba9505bcced47fff0c02893326e9fb-88f753e2-540.jpg" alt="Centered image">
 </p>
 
 <p align="center">
