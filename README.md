@@ -14,7 +14,7 @@
 <p align="center"> ♡⸝⸝ Aгσмαηтı¢ 【Ŧı¢тσ/Cυρıσ】 // Ðємı-βısєxυαι // Agєηdєг .ᐟ.ᐟ </p> 
 
 <p align="center">
-  <img height="200" width="300" src="https://64.media.tumblr.com/f7ba9505bcced47fff0c02893326e9fb/88e2fe4333571a6d-78/s540x810/88f753e2d19b0b4fc64469e5cbe693730f5f2711.pnj" alt="Centered image">
+  <img height="150" width="300" src="https://64.media.tumblr.com/f7ba9505bcced47fff0c02893326e9fb/88e2fe4333571a6d-78/s540x810/88f753e2d19b0b4fc64469e5cbe693730f5f2711.pnj" alt="Centered image">
 </p>
 
 <p align="center">
