@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="460" height="300" src="[https://example.com/image.png](https://postimg.cc/4KFyXGd7)" alt="Centered image">
+  <img width="460" height="300" src="(https://postimg.cc/4KFyXGd7)" alt="Centered image">
 </p>
 
 
