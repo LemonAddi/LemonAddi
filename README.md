@@ -21,6 +21,3 @@
 <p align="center">
   <img height="150" width="500" src="https://64.media.tumblr.com/9fc7879c572e6f9dff8a969079e51dd6/88e2fe4333571a6d-05/s540x810/c7673f9f6a6dc8ad4999aa1e4164b54463491e01.pnj" alt="Centered image">
 </p>
-
-FAB33E
-FA903E
