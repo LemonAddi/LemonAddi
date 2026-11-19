@@ -6,12 +6,12 @@
   <img alt="image" src="https://64.media.tumblr.com/6a84fd846ea89a0a6c0d1a1a36202768/88e2fe4333571a6d-95/s540x810/989f93329958eb516aa78a338cf7e24cda7a3cc1.pnj" alt="Centered image">
 </p>
 
-<p align="centre"> ⤷ ゛𑣲𝐿emon ꫂ᭪ જ⁀➴ ♡ ˎˊ˗ </p> 
-<p align="centre"> ☆.。.:・°☆.。.:・°☆.。.:・°☆.。.:・°☆ </p> 
-<p align="centre"> ♡⸝⸝ Tнєγ/Tнєм + Nєσρгηs .ᐟ.ᐟ </p> 
-<p align="centre"> ♡⸝⸝ ÐNC // W2I // Øƒтєη σƒƒ тαв .ᐟ.ᐟ </p> 
-<p align="centre"> ♡⸝⸝ ASÐ // AÐНÐ // AяŦIÐ // Aιєxıтнγмıα // Aηxıєтγ .ᐟ.ᐟ </p> 
-<p align="centre"> ♡⸝⸝ Aгσмαηтı¢ 【Ŧı¢тσ/Cυρıσ】 // Ðємı-βısєxυαι // Agєηdєг .ᐟ.ᐟ </p> 
+<p align="center"> ⤷ ゛𑣲𝐿emon ꫂ᭪ જ⁀➴ ♡ ˎˊ˗ </p> 
+<p align="center"> ☆.。.:・°☆.。.:・°☆.。.:・°☆.。.:・°☆ </p> 
+<p align="center"> ♡⸝⸝ Tнєγ/Tнєм + Nєσρгηs .ᐟ.ᐟ </p> 
+<p align="center"> ♡⸝⸝ ÐNC // W2I // Øƒтєη σƒƒ тαв .ᐟ.ᐟ </p> 
+<p align="center"> ♡⸝⸝ ASÐ // AÐНÐ // AяŦIÐ // Aιєxıтнγмıα // Aηxıєтγ .ᐟ.ᐟ </p> 
+<p align="center"> ♡⸝⸝ Aгσмαηтı¢ 【Ŧı¢тσ/Cυρıσ】 // Ðємı-βısєxυαι // Agєηdєг .ᐟ.ᐟ </p> 
 
 <p align="center">
   <img src="https://64.media.tumblr.com/f7ba9505bcced47fff0c02893326e9fb/88e2fe4333571a6d-78/s540x810/88f753e2d19b0b4fc64469e5cbe693730f5f2711.pnj" alt="Centered image">
