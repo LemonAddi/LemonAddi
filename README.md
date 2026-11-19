@@ -24,10 +24,10 @@
 - ♡⸝⸝ I am Aromantic (Specifically ficto/cupio), DemiBisexual, Agender and use Neopronouns.ᐟ.ᐟ
 
 <p align="center">
-  <img src="https://i.postimg.cc/2SFjddkJ/tumblr-f7ba9505bcced47fff0c02893326e9fb-88f753e2-540.jpg" alt="Centered image">
+  <img src="https://64.media.tumblr.com/f7ba9505bcced47fff0c02893326e9fb/88e2fe4333571a6d-78/s540x810/88f753e2d19b0b4fc64469e5cbe693730f5f2711.pnj" alt="Centered image">
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/3N4J2PNZ/tumblr-9fc7879c572e6f9dff8a969079e51dd6-c7673f9f-540.png" alt="Centered image">
+  <img src="https://64.media.tumblr.com/9fc7879c572e6f9dff8a969079e51dd6/88e2fe4333571a6d-05/s540x810/c7673f9f6a6dc8ad4999aa1e4164b54463491e01.pnj" alt="Centered image">
 </p>
 
