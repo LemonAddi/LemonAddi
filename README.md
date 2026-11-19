@@ -3,8 +3,6 @@
 </p>
 
 
-
-
 # <p align="center">⤷ ゛ Hello, My name is 𑣲𝐿emon! ꫂ᭪ જ⁀➴ ♡ ˎˊ˗</p>
 
 #
@@ -21,15 +19,7 @@
 
 - ♡⸝⸝ I am Aromantic (Specifically ficto/cupio), DemiBisexual, Agender and use Neopronouns.ᐟ.ᐟ
 
-<!--
+<p align="center">
+  <img src="https://i.postimg.cc/3N4J2PNZ/tumblr-9fc7879c572e6f9dff8a969079e51dd6-c7673f9f-540.png" alt="Centered image">
+</p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- ⚡ Fun fact: ...
--->
