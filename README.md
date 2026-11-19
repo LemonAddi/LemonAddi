@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="460" height="300" src="https://i.postimg.cc/HxTy4s12/tumblr-383c647865f6970b3b4ff0f8fd154b8a-de72f733-540.png" alt="Centered image">
+  <img width="700" height="300" src="https://i.postimg.cc/HxTy4s12/tumblr-383c647865f6970b3b4ff0f8fd154b8a-de72f733-540.png" alt="Centered image">
 </p>
 
 
