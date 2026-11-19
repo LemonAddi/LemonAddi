@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img width="400" height="400" src="https://i.postimg.cc/jSQq66x4/tumblr-6a84fd846ea89a0a6c0d1a1a36202768-989f9332-540.png" alt="Centered image">
+  <img src="https://i.postimg.cc/jSQq66x4/tumblr-6a84fd846ea89a0a6c0d1a1a36202768-989f9332-540.png" alt="Centered image">
 </p>
 
 
