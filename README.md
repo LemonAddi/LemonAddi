@@ -7,6 +7,7 @@
 </p>
 
 <p align="centre"> ⤷ ゛𑣲𝐿emon ꫂ᭪ જ⁀➴ ♡ ˎˊ˗ </p> 
+
 <p align="centre"> ♡⸝⸝ They/Them + Neoprns .ᐟ.ᐟ </p> 
 <p align="centre"> ♡⸝⸝ DNC // W2I // Often off tab .ᐟ.ᐟ </p> 
 <p align="centre"> ♡⸝⸝ ASD // ADHD // ARFID // Alexithymia // Anxiety .ᐟ.ᐟ </p> 
