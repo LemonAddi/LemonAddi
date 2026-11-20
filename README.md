@@ -6,7 +6,7 @@
   <img height="200" width="200" alt="image" src="https://64.media.tumblr.com/6a84fd846ea89a0a6c0d1a1a36202768/88e2fe4333571a6d-95/s540x810/989f93329958eb516aa78a338cf7e24cda7a3cc1.pnj" alt="Centered image">
 </p>
 
-<p align="center"> $\color{#FAB33E}{\textsf{⤷ ゛𑣲𝓛𝓮𝓶𝓸𝓷 ꫂ᭪ જ⁀➴ ♡ ˎˊ˗}}$ </p> 
+<p align="center"> $\color{#FAB33E}{\textsf{⤷ ゛𑣲⋆𝓛𝓮𝓶𝓸𝓷 ꫂ᭪ જ⁀➴ ♡ ˎˊ˗}}$ </p> 
 <p align="center"> ☆.。.:・°☆.。.:・°☆.。.:・°☆.。.:・°☆ </p> 
 <p align="center"> $\color{#FA903E}{\textsf{♡⸝⸝ 𝟐𝟐 // 𝑾𝒆𝒍𝒔𝒉 .ᐟ.ᐟ}}$ </p> 
 <p align="center"> $\color{#FAB33E}{\textsf{♡⸝⸝ 𝑻𝒉𝒆𝒚/𝑻𝒉𝒆𝒎 + 𝑵𝒆𝒐𝒑𝒓𝒏𝒔 .ᐟ.ᐟ}}$ </p> 
